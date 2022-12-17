@@ -1,5 +1,7 @@
-yaml frontmatter
--
+---
+title: Menu
+---
+
 
 # 🌱💫 Current Menu (Updates Frequently)
 
