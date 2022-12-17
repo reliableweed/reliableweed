@@ -4,7 +4,7 @@ date: 2022-12-17T23:27:27.015Z
 ---
 # 🌱💫 Current Menu (Updates Frequently)
 
-## CASH ONLY CASH ONLY 💰 
+## CASH ONLY CASH ONLY 💰 💵 
 
 Share me with trusted friends! Need new clients much appreciated!
 
